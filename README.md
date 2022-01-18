@@ -1,2 +1,2 @@
 # Projekt_STD
-Hello world
+by Aleksandra Adrjańska i Białas, Hanna Mitan, Valerii Daineko  
